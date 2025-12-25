@@ -1,2 +1,3 @@
 # Copilot-Mr.Thanawut-Choeytherdwong
 CoCopilot &amp; Mr.Thanawut Choeytherdwong ช่วยกันคิดขึ้นมา
+<a href="//www.dmca.com/Protection/Status.aspx?ID=f48c8ade-6c07-4f73-b967-606ed419dbb6" title="DMCA.com Protection Status" class="dmca-badge"> <img src ="https://images.dmca.com/Badges/dmca_protected_sml_120n.png?ID=f48c8ade-6c07-4f73-b967-606ed419dbb6"  alt="DMCA.com Protection Status" /></a>  <script src="https://images.dmca.com/Badges/DMCABadgeHelper.min.js"> </script>
